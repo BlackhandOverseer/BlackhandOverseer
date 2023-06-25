@@ -1,3 +1,1 @@
-you have no reason being here, now piss off.
-
--hambros0812
+I'll update it when I'm not banned.
